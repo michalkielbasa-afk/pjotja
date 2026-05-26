@@ -54,8 +54,6 @@ Zresztą bigos jest dobry na każdą okazję. Szkoda tylko, że podczas jego got
 
 
 
-
-
 zjadłbym sobie
 jajko
 na twardo
