@@ -48,3 +48,6 @@ Mickiewicz co prawda pisze o bigosie litewskim, czyli takim z dodatkiem kwaśnyc
 
 Zresztą bigos jest dobry na każdą okazję. Szkoda tylko, że podczas jego gotowania faktycznie „powietrze dokoła zionie aromatem
 
+
+efijeoifsoigroigjrojorsr
+
